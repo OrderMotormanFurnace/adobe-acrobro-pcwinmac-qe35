@@ -1,4 +1,4 @@
-# 
+# الأفضل Adobe Acrobat Pro سير العمل لـ Mac OS | نخبة Adobe Acrobat Pro سير العمل لـ PC Windows. مع التنبؤ بتدفق النقد و تحرير PDF — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
